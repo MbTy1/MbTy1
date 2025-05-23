@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MbTy1
-- 👀 I’m interested in ... edit maps
+- 👀 I’m interested in ... edit maps & translate to hebrew
 - 🌱 I’m currently learning ... how to sleep well
 - 💞️ I’m looking to collaborate on ... edit maps
 - 📫 How to reach me ... you cant
